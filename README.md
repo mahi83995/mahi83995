@@ -1,6 +1,6 @@
 ![An AI Enthusiasts.](https://pbs.twimg.com/profile_banners/2270596822/1655190209/1500x500)
 ### Hi there 👋, my name is Mahi
-#### An AI Enthusiasts.
+#### An AI Enthusiasts...
 
 
 Constantly acquiring new knowledge as I believe that learning efficiently and effectively in the information age is a skill set in itself. I view my diverging skillsets as a complement to each other as it drives my passion for exploring and learning more. I am excited to build my career in the information & technology field and apply my skills in an innovative environment. Presently working hard to achieve those goals and become a better individual each day!
